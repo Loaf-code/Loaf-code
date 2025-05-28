@@ -1,16 +1,13 @@
-## Hi there 👋
+## About Me
 
-<!--
-**Loaf-code/Loaf-code** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Hey there! I'm Loaf and I've been on the roblox platform for 8 years now. I've officialy reached 3 years of developping history in total and I've enjoyed every moments of it. I am currently studying game production at a higher education level and I'm aiming to become a gameplay programmere
 
-Here are some ideas to get you started:
+## My Work
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+https://medal.tv/fr/games/roblox-studio/clips/knxbRnbGayGTWPq9S?invite=cr-MSxEaEosMzMxOTI4NjU1
+https://medal.tv/fr/games/roblox-studio/clips/knxbiaV5xHseeiAc5?invite=cr-MSxRc3UsMzMxOTI4NjU1
+https://medal.tv/fr/games/roblox-studio/clips/knwXIPRyKQoAUsVFG?invite=cr-MSxGVFQsMzMxOTI4NjU1
+https://medal.tv/fr/games/roblox-studio/clips/knwP4Vc84TmaEcX08?invite=cr-MSxzdXAsMzMxOTI4NjU1
+https://medal.tv/fr/games/roblox-studio/clips/knwDNvA3MbmXK_RXE?invite=cr-MSxCc0UsMzMxOTI4NjU1
+
+My discord: reaperwastaken_.
