@@ -1,6 +1,6 @@
 ## About Me
 
-Hey there! I'm Loaf and I've been on the roblox platform for 8 years now. I've officialy reached 3 years of developping history in total and I've enjoyed every moments of it. I am currently studying game production at a higher education level and I'm aiming to become a gameplay programmere
+Hey there! I'm Loaf and I've been on the roblox platform for 8 years now. I've officialy reached 3 years of developping history in total and I've enjoyed every moments of it. I am currently studying game production at a higher education level and I'm aiming to become a gameplay programmer
 
 ## Some Of My Work
 
