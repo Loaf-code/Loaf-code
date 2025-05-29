@@ -10,4 +10,4 @@ https://medal.tv/fr/games/roblox-studio/clips/knwXIPRyKQoAUsVFG?invite=cr-MSxGVF
 https://medal.tv/fr/games/roblox-studio/clips/knwP4Vc84TmaEcX08?invite=cr-MSxzdXAsMzMxOTI4NjU1
 https://medal.tv/fr/games/roblox-studio/clips/knwDNvA3MbmXK_RXE?invite=cr-MSxCc0UsMzMxOTI4NjU1
 
-My discord: bardockgotyourmother
+My discord: simplyzayden
